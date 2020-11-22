@@ -8,6 +8,7 @@
 - Carlão
 - Carlinhos Posto (Atacados): Presença Política Conversado em 22/11/2020
 - Tiziu
+- Fábio Boita
 
 # Mudança de Rotinas
 - Conversar mais com as pessoas
@@ -24,6 +25,9 @@
 - Pesquisar O SRI - Sistema regional de inovacao - Região Oeste
 - Organizar Contatos e rotina de organização de contatos
 - Filiar a um Rotary
+- Espião Câmara
+- Gabinete Paralelo Hallberg
+
 
 # Organização de Partido
 - Conferir todos as fichas de todos os vereadores no Projudi/Eproc

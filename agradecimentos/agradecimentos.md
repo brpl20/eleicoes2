@@ -1,0 +1,123 @@
+# Agradecimento Eleitores
+- Fistarol
+
+# Video de Agradecimento + Presente Fim de Ano
+x  Ivete
+x  Genérico
+  Empresas
+    GWD
+    Carlos Midlab
+  Amigos
+- Bairro + Igreja
+- Fábio Boita
+- Eleições OAB ?
+- Atualizar Cadastros
+- Dia de Visitas
+- Vender Teses Tributárias - Visitas
+- Doces Fronteira
+- Comida Quente
+- Marcelo Bueno
+- PC Force
+- Postos
+- Milton Riedi Texas
+- Leninha Costureira
+- Caio Patagônia
+- Ronei Cachaçaria
+- Alysson Adv
+- Adv 15
+- Panificadora Camponesa
+- Clube de Tiro
+- Cleon
+- Jocimar Pegoraro
+- Silvio Corso Policial
+- Escolinha Jardim Universitário
+- Reunião GWD 12:00
+- Reunião Zini 14:00
+- André Sindicato
+- Elita
+- Despachante Cobra
+- Despachante Gilberto
+- Clínica Ouvido André
+- Salão Ex Mulher Miguel
+- Notebook Reparo Carlos
+- Restaurante Joni
+- Visitar Suprivel (Valdirene)
+- Visitar Mertz
+- Visitar Box CrossFit
+- Controsul
+- Atacadao perto GWD
+- Posto Pegoraro
+- ParanaFer
+- Unifisio
+- Chemerson
+- Marcelo Horikawa
+- João Paulo Médico
+- Rotarys
+- Presidente Rotary Cascavel
+- Master Clínica - Pacanhan
+- Valmir Loja de Telas
+- Vip - Piazada Quiosque
+- Pastoral Política
+- Cadline
+- Augusto
+- AmbientalMed
+- Ver se Carta Rodobens Chegou
+- Vanzo
+- Imobiliária Zanel
+- CCBEU
+- Rotary Cascavel
+- Aguinaldo Leve
+- Postos Rosário - Texas - Portelão - Recapeadora Paulinho
+- Alfaiate
+- Panificadora Perto Irani Pq Verde
+- Bruno Camelos
+- Datacom
+- Dalberti
+- Vizinhos
+- Midlab - Carlos
+- Véia Interlagos
+- Beti Farmácia Rio Negro
+- Clientes Antigos
+- Construtora Conceito
+- Schuster
+- Marcelo Horikawa
+- Teggumax
+- Loja Piscinas
+- Padaria Big Pão (Professor)
+- Dr. Leonel
+- Air Forte
+- Posto de Molas
+- Leomar Construtora
+- Loja de Eletricista Centro Av. Br
+- Aluforte - Visita Rápida Santinhos
+- Julio Filtros
+- Huber Alimentos
+- Chicão
+- Matsuda
+- DZ - Ligar Divo
+- Fábio Engenheiro
+- Gulgielmin - Alexandre Damian
+- Visitar Magrão Bombas
+- Visitar Nei Fenix
+- Visitar Alysson Ciclesvel (Pai)
+- Visitar Sato Terraplanagem
+- Reunião Robson R-Dicom
+- Reunião Nicholas MyPharma
+- Restaurante do Country
+- Eletronica Eletron
+- Vizinhos Maria Luiza
+- Loterias Mega (Nelson)
+- Bacarin
+- Central Cobranças
+- Veterinária São Francisco
+- Displatam
+- Honjo - Pai
+- Krum
+- Kapazi
+- Orca
+- Rejovel
+- Jaime Embravet
+- Almoço Jair GWD
+- Cartório
+- Conti
+- Agropecuária CG
