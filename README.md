@@ -9,6 +9,7 @@
 - Carlinhos Posto (Atacados): Presença Política Conversado em 22/11/2020
 - Tiziu
 - Fábio Boita
+- Pastel - Esporte 
 
 # Mudança de Rotinas
 - Conversar mais com as pessoas
@@ -28,7 +29,6 @@
 - Espião Câmara
 - Gabinete Paralelo Hallberg
 
-
 # Organização de Partido
 - Conferir todos as fichas de todos os vereadores no Projudi/Eproc
 
@@ -38,5 +38,5 @@
 - Cidadania nas Escolas
 
 # Diário
-
+- [Diário](diario.md)
 
