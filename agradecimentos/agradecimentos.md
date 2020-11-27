@@ -1,5 +1,5 @@
 # Agradecimento Eleitores
-- Fistarol
+- Fistarol x
 
 # Video de Agradecimento + Presente Fim de Ano
 x  Ivete
